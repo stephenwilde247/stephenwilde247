@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @stephenwilde247
+- 👋 Hi, I’m @stephenwilde247 AKA Stevza90
 - 👀 I’m interested in coding
 - 📫 How to reach me myself@stephenwilde.net
 
